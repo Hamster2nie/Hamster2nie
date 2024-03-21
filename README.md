@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Hamster2nie
+- 👀 I’m interested in Minecraft modding/development, indie game development, and graphics programming
+- 🌱 I’m currently learning Java, Android app development, and about 20 other random things in my open tabs
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: no thanks
+- 😄 Pronouns: I am two children in a trenchcoat, and so you must refer to me using they/them
+- ⚡ Fun fact: im not fun
